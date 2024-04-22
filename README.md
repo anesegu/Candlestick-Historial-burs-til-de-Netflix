@@ -1,0 +1,1 @@
+# Candlestick-Historial-burs-til-de-Netflix
